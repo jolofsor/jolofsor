@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jolofsor
+- 👀 I’m interested in keyboards, computers, gaming and technology in general
+- 🌱 I’m currently learning coding and PCB design
+- 📫 You can reach me at jolofsor@gmail.com or facebook.com/jolofsor
